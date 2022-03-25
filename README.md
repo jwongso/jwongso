@@ -1,4 +1,4 @@
-- 👋 Hi, I’m a software emgineer and
+- 👋 Hi, I’m a father, husband, software engineer and
 - 👀 I’m interested in finding a new home.
 - 🌱 I’m currently learning ABAP eventhough there are two technology areas that I am willing to learn more: cryptocurrency and AI/ML/DL techs.
 - 💞️ Other than that, I’m looking for a collaboration in something useful or make life easier
